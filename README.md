@@ -1,1 +1,1 @@
-![](4F39B204-A473-4E61-9444-7E5CCB8AFDF9.gif)
+![](https://media.giphy.com/media/lgcUUCXgC8mEo/giphy.gif)
